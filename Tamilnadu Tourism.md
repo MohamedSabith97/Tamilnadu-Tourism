@@ -2,7 +2,7 @@
 
 **Inroduction**
 
-Tamilnadu is southern most state of india is located southeast coast of india. Tamilnadu is straddled by **western ghats** and **Eastern Ghats** western part of Tamilnadu is east coast with Bay of Bangal, and southend is very known **Indian Ocean**. It is home of Tamil people, whos speak tamil language, one of the oldest surviving language in the world. The Capital and Large city is **"Chennai"** is which known as the **"Gateway to thesouth India"**.
+Tamilnadu is southern most state of india is located southeast coast of india. Tamilnadu is straddled by **western ghats** and **Eastern Ghats** western part of Tamilnadu is east coast with Bay of Bangal, and southend is very known **Indian Ocean**. It is home of Tamil people, whos speak tamil language, one of the oldest surviving language in the world. The Capital and Large city is **"Chennai"** is which known as the **"Gateway to thesouth India's"**.
 
 **TamilNadu Tourism** 
 
